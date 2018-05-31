@@ -1,1 +1,1 @@
-solevisible
+http://getalfa.rf.gd
