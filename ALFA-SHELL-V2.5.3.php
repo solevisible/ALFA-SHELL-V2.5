@@ -1,1 +1,1 @@
-download last version: http://getalfa.rf.gd
+download last version: http://dl.solevisible.com/
